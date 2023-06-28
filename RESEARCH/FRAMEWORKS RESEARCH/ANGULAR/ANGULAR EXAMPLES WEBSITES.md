@@ -1,0 +1,6 @@
+- https://cloud.google.com/
+- https://www.ibm.com/es-es
+- https://www.office.com/
+- https://www.theguardian.com/international
+- https://www.theguardian.com/international
+- https://www.paypal.com/es/home

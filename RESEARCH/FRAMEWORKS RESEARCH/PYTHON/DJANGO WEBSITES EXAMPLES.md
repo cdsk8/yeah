@@ -1,0 +1,6 @@
+- https://www.instagram.com/
+- https://www.pinterest.com/
+- https://www.washingtonpost.com/
+- https://www.mozilla.org/
+- https://www.nationalgeographic.com/
+- https://www.eventbrite.com/
